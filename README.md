@@ -1,3 +1,3 @@
 ---
-AnyKernel3 For Xiaomi Redmi Note 10 Pro (Sweet/Sweetin)
+AnyKernel3 For Sweet/Sweetin
 ---
